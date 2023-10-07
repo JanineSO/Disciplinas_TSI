@@ -1,2 +1,0 @@
-# Disciplinas TSI
- 
